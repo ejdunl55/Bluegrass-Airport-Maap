@@ -15,13 +15,17 @@ Bluegrass Airport is Lexington's main airport for aerial transportation to place
 Sadly on August 27th, 2006 the flight  of Delta 5191, crashed when the aircraft took off from the wrong runway, crashing into a line of trees and exploding. Two of my friends were onboard and didn't survive.
 
 ![Display Image of Bluegrass Airport Map](5191.jpeg)
+
 Wreckage of the crash of 5191
+
 https://www.popularmechanics.com/flight/a1264/4212159/ 
 
 One of which was a pilot for AirTran and was a major inspiration for my pursuit of flying. I continued flying for 5 more years until as I grew older I could not fight the anxiety that was thinking of all those who died in plane crash, and the dangers of flying.
 
 ![Display Image of Bluegrass Airport Map](CW.jpeg)
+
 Clarence Wayne "CW" Fortney II
+
 https://www.claycity-times.com/news/?p=4159
 
 ## Remembrance Is the Best Thing to Do
