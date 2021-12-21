@@ -20,7 +20,7 @@ Wreckage of the crash of 5191
 
 https://www.popularmechanics.com/flight/a1264/4212159/ 
 
-One of which was a pilot for AirTran and was a major inspiration for my pursuit of flying. I continued flying for 5 more years until as I grew older I could not fight the anxiety that was thinking of all those who died in plane crash, and the dangers of flying.
+One of which was a pilot for AirTran and was a major inspiration for my pursuit of flying. I continued flying for 5 more years until as I grew older I could not fight the anxiety that was thinking of all those who died in the plane crash, and the dangers of flying.
 
 ![Display Image of Bluegrass Airport Map](CW.jpeg)
 
