@@ -29,7 +29,7 @@ Clarence Wayne "CW" Fortney II
 https://www.claycity-times.com/news/?p=4159
 
 ## Remembrance Is the Best Thing to Do
-Fast forward to this summer, I made the decision to leave previous job and get a postion at the airport as a Ground Operations Agent for Allegiant Airlines. This was a tough decision, as it was the very sight that my friends passed away, but it is where so many memories began. All the friends I made at aviation camp, the planes I got to fly, the museums I visited and the history I got to witness.
+Fast forward to this summer, I made the decision to leave my previous job and get a postion at the airport as a Ground Operations Agent for Allegiant Airlines. This was a tough decision, as it was the very sight that my friends passed away, but it is where so many memories began. All the friends I made at aviation camp, the planes I got to fly, the museums I visited and the history I got to witness.
 
 ![Display Image of Bluegrass Airport Map](Allegiant.jpeg)
 
