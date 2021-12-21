@@ -37,4 +37,4 @@ I have now helped over 150 flights take off from Bluegrass safely, and each plan
 
 Fly High CW and Carol
 
-https://ejdunl55.github.io/bluegrass-airport-maap
+https://ejdunl55.github.io/Bluegrass-Airport-Maap
